@@ -1,7 +1,11 @@
 # BYT Workspace
-Low cost community driven workspace in Central London. 
+Low cost community  workspace in Central London. 
 Perfect for fast growing firms 
-A radically better approach to work space.  Our values are yours too:
+A radically better approach to work space.
+8a Lower Grosvenor Place
+Sw1w 0en
+
+Our values are yours too:
 
 # Our Values
 Inspired
